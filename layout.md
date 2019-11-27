@@ -1,5 +1,7 @@
 abstract.html
 untitled.html
+1spr4l0iflo.html
+2guesi6me98.html
 vk9u58qa7g8.html
 figures/Book1
 data/Screen Shot 2019-11-26 at 11-06-05 AM/Screen Shot 2019-11-26 at 11-06-05 AM.png
